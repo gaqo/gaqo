@@ -12,3 +12,6 @@
 ![](https://github.com/gaqo/gaqo/assets/159385360/10148ae5-4aa3-4ddc-b2cd-dfcc45d12b3a)
 ![](https://github.com/gaqo/gaqo/assets/159385360/1e37215f-ef4f-4b41-9750-440ea6fcdb2b)
 
+
+
+![hazbin hotel episode 5 dad beat dad](https://github.com/gaqo/gaqo/assets/159385360/249b44ab-847d-4a7c-b766-ebc9ab5a496c)
